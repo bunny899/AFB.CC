@@ -1,2 +1,0 @@
-# AFB.CC
-Skisosi
